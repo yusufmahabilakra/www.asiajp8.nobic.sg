@@ -1,1 +1,1 @@
-# www.asiajp-88.nobic.sg
+# www.asiajp8.nobic.sg
